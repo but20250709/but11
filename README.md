@@ -10,4 +10,4 @@
 
 这里汇集了丰富的亚洲精品影视资源，涵盖多样内容分类，支持多平台高清播放，保证流畅体验，满足不同用户对优质内容的需求，是您看片的首选平台。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/but20250709/but11 ）</span>
